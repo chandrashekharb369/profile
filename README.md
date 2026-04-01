@@ -1,1 +1,1 @@
-www.linkedin.com/in/chandrashekhar-b-b8a0b0363
+https://chandrashekharb369.github.io/profile/
